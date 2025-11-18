@@ -7,7 +7,8 @@ Computer with MATLAB software
 ## Theory:
 ![WhatsApp Image 2025-11-18 at 11 52 55_d67cb7f5](https://github.com/user-attachments/assets/d9b8be15-241c-466f-81b0-0050f83db830)
 
-![WhatsApp Image 2025-11-18 at 11 52 53_8f85191a](https://github.com/user-attachments/assets/3f329fc3-ca09-45a5-8f50-9c1bd181795b)
+![WhatsApp Image 2025-11-18 at 14 45 50_0ce8ce2d](https://github.com/user-attachments/assets/8cdf8e56-6ddc-4722-8ad8-ec7f6c578ad2)
+
 
 ![WhatsApp Image 2025-11-18 at 11 59 04_ca82f8f3](https://github.com/user-attachments/assets/9deab8f0-9d2e-4982-b332-e61202fdc52b)
 
